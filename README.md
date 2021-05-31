@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @bellevue-dluna Denae Luna
-- Professor Sue Sampso
+- Professor Sue Sampson
